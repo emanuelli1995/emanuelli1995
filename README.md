@@ -6,6 +6,4 @@
 - 😄 Pronouns: she/her
 -  ⚡ Fun fact: I've already done 7 years of jiu jitsus
 
-<!---
 
---->
